@@ -1,7 +1,8 @@
 # Slobodan Mrkobrada 
 ### Tech Sales Professional | Specializing in FinTech & Cybersecurity Solutions
 
-[💼 LinkedIn Profile](ADD_YOUR_LINKEDIN_URL_HERE) | ✉️ slobodan.mrkobrada@gmail.com | 📍 London, UK
+[💼 LinkedIn Profile](www.linkedin.com/in/
+mrkobrada) | [📅 Book a Strategy Call](https://meetings-eu1.hubspot.com/smrkobrada) | ✉️ contact@slobodanmrkobrada.me | 📍 London, UK
 
 ---
 
